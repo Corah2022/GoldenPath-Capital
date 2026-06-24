@@ -1,1 +1,1 @@
-# GoldenPath-Capital
+# Goldenpath Capital
